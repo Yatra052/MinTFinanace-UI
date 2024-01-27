@@ -1,0 +1,10 @@
+#Output
+![WhatsApp Image 2024-01-28 at 12 32 55 AM (1)](https://github.com/Yatra052/MinTFinanace-UI/assets/108984857/277e3a3b-9f62-4f60-b9a2-75100bcdc057)
+![WhatsApp Image 2024-01-28 at 12 32 55 AM](https://github.com/Yatra052/MinTFinanace-UI/assets/108984857/1b71dd34-51f0-4f75-828d-722b47333f42)
+![WhatsApp Image 2024-01-28 at 12 32 54 AM](https://github.com/Yatra052/MinTFinanace-UI/assets/108984857/c852e221-3936-41e9-b370-6a6f7744177f)
+![WhatsApp Image 2024-01-28 at 12 32 53 AM (2)](https://github.com/Yatra052/MinTFinanace-UI/assets/108984857/f1d48f49-54c1-4d8e-8527-54510f847db2)
+![WhatsApp Image 2024-01-28 at 12 32 53 AM (1)](https://github.com/Yatra052/MinTFinanace-UI/assets/108984857/ba99aedf-061e-4014-ab72-f7e7c736cdd4)
+![WhatsApp Image 2024-01-28 at 12 32 52 AM (1)](https://github.com/Yatra052/MinTFinanace-UI/assets/108984857/b4647d3d-74fd-4ba4-b73e-edf07f2fe916)
+![WhatsApp Image 2024-01-28 at 12 32 52 AM](https://github.com/Yatra052/MinTFinanace-UI/assets/108984857/8e4fd76c-dc21-4259-b237-03316caad7a5)
+![WhatsApp Image 2024-01-28 at 12 32 53 AM](https://github.com/Yatra052/MinTFinanace-UI/assets/108984857/e965d5fd-87f5-4a58-b880-7e12de2fc92a)
+![WhatsApp Image 2024-01-28 at 12 32 52 AM (1)](https://github.com/Yatra052/MinTFinanace-UI/assets/108984857/06f2169f-8c0c-4191-92fd-701a867c229a)
